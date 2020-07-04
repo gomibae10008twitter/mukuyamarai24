@@ -2,7 +2,7 @@
 <BR><H3><a href="https://twitter.com/mukuyamarai">@mukuyamarai</a>による暴言、自殺示唆、名誉棄損などにあたる
 <BR>通報案件となるツイートのまとめ集</H3>
 <BR>
-<BR><H4>氏ね(死ね)による発言一覧</H4>
+<BR><H4><a href="https://twitter.com/search?q=%E6%B0%8F%E3%81%AD%7Bfrom%3A%40mukuyamarai&src=recent_search_click">氏ね</a>(死ね)による発言一覧</H4>
 <BR><H5>
 <BR><a href="https://twitter.com/mukuyamarai/status/1112287315504689153">牛角の焼肉用『醤油タレ』を買ってきてもらいました！牛肉は高いのでホルモンです。アベノミクス氏ね！</a>
 <BR><a href="https://twitter.com/mukuyamarai/status/903638263260299266">こういう話を聞く度に、一度は共産党に政権を委ねたくなるよね！安倍氏ね！</a>
