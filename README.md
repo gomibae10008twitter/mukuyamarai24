@@ -23,4 +23,4 @@
 <BR>・<a href="https://twitter.com/mukuyamarai/status/852280392216231936">安倍晋三氏ね！！！</a><BR>
 <BR></H5>
 <BR><BR><H5>大量にあり過ぎてまだまだ10分の1にも満たないでっすが、ゆっくり通報案件となるツイートを紹介していきたいと思いまっす
-<BR>感想、または情報提供などは<a href="https://www2.x-feeder.info/gomibae10008/">こちら</a>まで<H5>
+<BR>感想、または情報提供などは<a href="https://gab.com/gomibae10008">こちら</a>まで<H5>
