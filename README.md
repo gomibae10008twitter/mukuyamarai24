@@ -23,5 +23,8 @@
 <BR>・<a href="https://twitter.com/mukuyamarai/status/852280392216231936">安倍晋三氏ね！！！</a><BR>
 <BR></H5>
 <BR><BR><H5>大量にあり過ぎてまだまだ10分の1にも満たないでっすが、ゆっくり通報案件となるツイートを紹介していきたいと思いまっす
-<BR>感想、または情報提供などは<a href="https://gab.com/gomibae10008">こちら</a>まで<H5>
+<BR>感想、または情報提供などは<a href="https://gab.com/gomibae10008">こちら</a>まで
+<BR>
+<BR>PS.<a href="https://twitter.com/kota_falcon/status/1378367659868180484">この人のツイート</a>のおかげでサブ垢の方で行動していることがわかりましたっす
+<BR>また時間が空いたら連続通報行動で凍結狙いを開始していきたいと思いまっす<H5>
 <BR><img src="https://raw.githubusercontent.com/gomibae10008twitter/mukuyamarai24/560b512bcf7fa6fa5c6d0dbb0a9186cb6b53a97a/%E4%BA%AC%E9%83%BD%E6%B8%88%E3%81%AE%E4%BA%BA.jpg">
