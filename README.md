@@ -1,5 +1,5 @@
 <BR><CENTER>
-<BR><H3><a href="https://twitter.com/mukuyamarai">@mukuyamarai</a>による暴言、自殺示唆、名誉棄損などにあたる
+<BR><H3>西村ま〇ひろ(<a href="https://twitter.com/mukuyamarai">@mukuyamarai</a>)による暴言、自殺示唆、名誉棄損などにあたる
 <BR>通報案件となるツイートのまとめ集</H3>
 <BR>
 <BR><H4><a href="https://twitter.com/search?q=%E6%B0%8F%E3%81%AD%7Bfrom%3A%40mukuyamarai&src=recent_search_click">氏ね</a>(死ね)による発言一覧</H4>
