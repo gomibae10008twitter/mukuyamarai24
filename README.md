@@ -27,4 +27,4 @@
 <BR>
 <BR>PS.<a href="https://twitter.com/kota_falcon/status/1378367659868180484">この人のツイート</a>のおかげでサブ垢の方で行動していることがわかりましたっす
 <BR>また時間が空いたら連続通報行動で凍結狙いを開始していきたいと思いまっす<H5>
-<BR>
+<BR><img src="https://raw.githubusercontent.com/gomibae10008twitter/mukuyamarai24/master/%E4%BA%AC%E9%83%BD%E6%B8%88%E3%81%AE%E4%BA%BA.jpg">
